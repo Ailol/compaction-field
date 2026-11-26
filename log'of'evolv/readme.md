@@ -11,3 +11,11 @@ great mindset during is to change the "oneshot" to f.eks thundersmithing, then t
 
 #### tia's first notion of "successfull"
 <img width="50%" alt="image" src="https://github.com/user-attachments/assets/46bbfa97-2464-4e9e-8563-355269838d2f" />
+
+#### first sign of super numbers working in inference :)
+<img width="50%" alt="image" src="https://github.com/user-attachments/assets/acf8e4d2-a3fa-47c1-8dd2-9bb9cb6d2a96" />
+
+
+#### dd 'reference in all of it :)
+<img width="640" height="302" alt="image" src="https://github.com/user-attachments/assets/9f408f7c-0ec5-4003-a881-46774e552146" />
+
