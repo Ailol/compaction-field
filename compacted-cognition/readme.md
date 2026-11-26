@@ -1,4 +1,4 @@
-# Compacted'cognition
+# Compacted'cognition n vs れ
 
 skyic ' skyik' skyikz ' norsososos
 
