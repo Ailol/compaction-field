@@ -1,5 +1,8 @@
 # Compacted'cognition
 
+skyic ' skyik' skyikz ' norsososos
+
+
 for compaction to happen, givens' need to be set properly before one can rest and go on to the next as essentially you are saying "goodbye" to the previous version :) 
 
 the transfer of non'semantikal to semantikal is very precize.
